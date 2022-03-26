@@ -1,1 +1,0 @@
-# glburak.github.io
